@@ -3,3 +3,5 @@
                 [pronouns](https://pronouns.cc/@tinfoiil)
 
 [atabook](https://iknowuraddress.atabook.org/)
+[sp](https://kiiiin.straw.page/)
+[wip sp](https://thantophobiaaa.straw.page/)
